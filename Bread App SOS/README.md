@@ -1,6 +1,6 @@
-Members
+Leader: Espiritu, Bryan Lloyd B.
+Members:
 Areglado, Mara Divine
-Espiritu, Bryan Lloyd B.
-Federizo, John Robert Angelo
+Federizo, John Robert Angelo B.
 Viar, Jedidiah
 Jaquias, Jimuel
